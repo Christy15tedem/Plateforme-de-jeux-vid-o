@@ -1,1 +1,1 @@
-# Plateforme-de-jeux-vid-o
+# Plateforme-de-jeux-vidéo
